@@ -3,6 +3,5 @@
  <h3>Each must in virtue strive for to excel;
     That man lives twice that lives the first life well.</h3>
     
-   _Robert Herrick_
-   
+   _Robert Herrick_     
     http://www.public-domain-poetry.com/robert-herrick/virtue-18781
